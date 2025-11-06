@@ -1,0 +1,1 @@
+# idec_product_photo_Furniture
